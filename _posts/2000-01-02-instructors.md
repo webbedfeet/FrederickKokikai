@@ -6,7 +6,7 @@ position: top
 ---
 # Instructors
 
-**Abhijit Dasgupta** is a fourth degree black belt in Kokikai Aikido, a certified instructor and a direct student of Sensei Maruyama, founder of Kokikai Aikido. 
+**Abhijit Dasgupta** is a fourth degree black belt and certified instructor in Kokikai Aikido,  and a direct student of Sensei Maruyama, founder of Kokikai Aikido. 
 He has been 
 practicing aikido since 1994, starting when he was in graduate school at the University of Washington. He spent
 6 years at Aikido Kokikai Seattle under Sensei Jonathan Bannister. Since then, Abhijit was a member of [Ellicott City Aikido](http://www.ellicottcityaikido.com) with Sensei Brian Kantsiper, then Aikido Kokikai of South New Jersey with Sensei Dennis Embert
