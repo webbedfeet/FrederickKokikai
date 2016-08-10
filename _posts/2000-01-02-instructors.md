@@ -14,7 +14,7 @@ for three years before moving to Germantown, Maryland. He joined Aikido Kokikai 
 Professionally, Abhijit is a data science consultant for the National Institutes of Health and also works to build a startup healthcare-focused sensor company. 
 
 **Tom Wildsmith** is a second degree black belt in Kokikai Aikido.  Tom started his aikido practice here at Aikido Kokikai of Frederick County, Maryland
-under the instruction of Sensei Bob McCann. Tom lead the practice for several years after Sensei McCann moved from the area. 
+under the instruction of Sensei Bob McCann. Tom led the practice for several years after Sensei McCann moved from the area. 
 He co-instructs all classes. Professionally, Tom is an actuarial scientist at a major insurance company and currently serves in a 
 leadership role for one of the professional societies in actuarial science. 
 
